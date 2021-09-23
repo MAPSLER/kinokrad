@@ -1,0 +1,2 @@
+# kinokrad
+https://kinokrad.co
